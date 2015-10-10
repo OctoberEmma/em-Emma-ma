@@ -1,2 +1,0 @@
-# Emma Chan
-# Since October
